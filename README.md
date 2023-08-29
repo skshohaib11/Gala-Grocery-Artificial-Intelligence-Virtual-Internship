@@ -1,0 +1,1 @@
+# Gala-Grocery-Artificial-Intelligence-Virtual-Internship
